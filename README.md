@@ -1,0 +1,1 @@
+# sekaizutto.github.io
